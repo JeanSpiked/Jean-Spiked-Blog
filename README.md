@@ -1,1 +1,0 @@
-# Jean-Spiked-Blog2
